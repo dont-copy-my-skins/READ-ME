@@ -1,6 +1,6 @@
 # PONYTOWN 
 
-# Hi I'm clay !!
+Hi I'm clay !!
 
 - He/they/nya/ender/honk
 - Pls do not be weird towards me
@@ -15,6 +15,6 @@
 - Argbur
 - Ghostbur
 
-- DOUBLES DO NOT INTERACT !! -
+DOUBLES DO NOT INTERACT !! 
 
 ## Please do not cuddle me as it makes me uncomfy and I have a partner I'm very loyal to. 
