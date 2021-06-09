@@ -7,13 +7,6 @@
 - Psychotic
 - Neurodivergent (ADHD)
 
-# Delusional Attachments to:
-- Sapnap
-- Dream
-- George
-- Revivebur
-- Argbur
-- Ghostbur
 
 **DOUBLES DO NOT INTERACT !!**
 
@@ -27,7 +20,6 @@
 -**DO NOT COPY ME**
 
 
-
 # TRIGGERS
 - The song bruno is orange
 - Doxxing
@@ -35,3 +27,4 @@
 - S##cide
 - S#lf H#rm
 - Mentions of running away from home
+- The name Mocha
