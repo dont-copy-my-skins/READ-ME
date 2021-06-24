@@ -1,30 +1,68 @@
-# PONYTOWN 
+# Calendula System
+[System Carrd](https://calendula-system.carrd.co/)
 
-**Hi I'm clay !!**
+A Psychotic OSDD System.
 
-- He/they/nya/ender/honk
-- **Pls do not be weird towards me**
-- Psychotic
-- Neurodivergent (ADHD)
+Body is a minor
 
+# DO NOT INTERACT
 
-**DOUBLES DO NOT INTERACT !!**
+- Basic dni criteria (against xenogenders, racist. homophobic, etc)
+ 
+- Under the age of 13 or over the age of 24
 
-**Please do not cuddle me as it makes me uncomfy and I have a partner I'm very loyal to.**
+- HAVE ANY RELATION TO @arcadedotexe ON TWITTER
 
-# More
-- I have anxiety to people booping me
+- you dont respect ccs or people's boundaries
 
-- If I'm on my AFK/DNI/DRAWING skin, please do not interact.
+- support carson, charlie d'amelio, dixie d'amelio, trump, or creepshow art
 
--**DO NOT COPY ME**
+- You copy people's skins
 
+- harrass those with tts or tds.
 
-# TRIGGERS
-- The song bruno is orange
-- Doxxing
-- The name Keni
-- S##cide
-- S#lf H#rm
-- Mentions of running away from home
-- The name Mocha
+- Purposefully force somebody to front in any systems
+
+# Host information
+
+- Name
+
+Clay
+
+- Pronouns
+
+He/him
+
+- Age
+
+21
+
+- Triggers (negative)
+
+s#icide, the names m#cha, arc#de, k#ni + things similar, running away mentions, mentions of losing his partner
+
+- Triggers (Positive)
+
+dream, george, sapnap, mcyt, his partner,
+
+# Co-host Info
+
+- Name
+
+George
+
+- Pronouns
+
+He/They
+
+- Age
+
+24
+
+- Triggers (negative)
+
+s#icide, s#lf-h#rm, dream being upset.
+
+- Triggers (Positive)
+
+Dream, Sapnap, MCYTs
