@@ -45,6 +45,10 @@ s#icide, the names m#cha, arc#de, k#ni + things similar, running away mentions, 
 
 dream, george, sapnap, mcyt, his partner,
 
+- More info
+
+Regiment owner, likes glass animals, taken.
+
 # Co-host Info
 
 - Name
