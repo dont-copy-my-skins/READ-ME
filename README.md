@@ -23,6 +23,8 @@ Body is a minor
 
 - Purposefully force somebody to front in any systems
 
+- Disrespect TTs or TDs
+
 # Host information
 
 - Name
