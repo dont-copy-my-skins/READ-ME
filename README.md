@@ -23,7 +23,7 @@ Body is a minor
 
 - Purposefully force somebody to front in any systems
 
-- Disrespect TTs or TDs
+- You're in/affiliated with the DSMP Regiment  ( They don't believe in TT/TD)
 
 # Host information
 
