@@ -1,74 +1,60 @@
-# Calendula System
-[System Carrd](https://calendula-system.carrd.co/)
+━━━━━━━━━━━━━━━━━━━━━━━━━━━☆☆━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+System Carrd > https://calendula-system.carrd.co/
 
 A Psychotic OSDD System.
 
 Body is a minor
 
-# DO NOT INTERACT
+︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
-- Basic dni criteria (against xenogenders, racist. homophobic, etc)
- 
-- Under the age of 13 or over the age of 24
+**Do not interact**
+Support CMC, K#cey, charlie d'amelio, dixie d'amelio, trump, or creepshow art
 
-- HAVE ANY RELATION TO @arcadedotexe ON TWITTER
+Fakeclaim Systems
 
-- you dont respect ccs or people's boundaries
+harrass those with tts or tds.
 
-- support carson, charlie d'amelio, dixie d'amelio, trump, or creepshow art
+You're in/affiliated with the DSMP Regiment ( They don't believe in TT/TD)
 
-- You copy people's skins
+you dont respect ccs or people's boundaries
 
-- harrass those with tts or tds.
+Basic dni criteria (against xenogenders, racist. homophobic, etc)
 
-- Purposefully force somebody to front in any systems
+Under the age of 13 or over the age of 23
 
-- You're in/affiliated with the DSMP Regiment  ( They don't believe in TT/TD)
+︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
-# Host information
+**Host Info**
+Name ; Clay
 
-- Name
+Pronouns ; He/they/it
 
-Clay
+Sexuality ; Bisexual | Demian | Questioning Asexual
 
-- Pronouns
+Negative Triggers; s#icide, the names m#cha, arc#de, k#ni + things similar, running away mentions, mentions of losing his partner
 
-He/him
+Positive Triggers ; dream, george, sapnap, mcyt, his partner,
 
-- Age
+More ;
 
-21
+Taken, Regiment Owner, Likes Glass Animals, Twitch Streamer
 
-- Triggers (negative)
+︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
-s#icide, the names m#cha, arc#de, k#ni + things similar, running away mentions, mentions of losing his partner
+**Co- Host Info**
 
-- Triggers (Positive)
+Name ; George
 
-dream, george, sapnap, mcyt, his partner,
+Pronouns ; He/they
 
-- More info
+Sexuality ; Gay / MLM 
 
-Regiment owner, likes glass animals, taken.
+Negative Triggers ; s#icide, s#lf-h#rm, dream being upset, mentions of losing anybody
 
-# Co-host Info
+Positive Triggers ; Dream, Sapnap, MCYTs
 
-- Name
+More ; 
+Wishes to not be asked out, Minor TD 
 
-George
 
-- Pronouns
-
-He/They
-
-- Age
-
-24
-
-- Triggers (negative)
-
-s#icide, s#lf-h#rm, dream being upset.
-
-- Triggers (Positive)
-
-Dream, Sapnap, MCYTs
