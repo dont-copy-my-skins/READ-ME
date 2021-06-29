@@ -23,6 +23,8 @@ Basic dni criteria (against xenogenders, racist. homophobic, etc)
 
 Under the age of 13 or over the age of 23
 
+Default or grass skin
+
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Host Info**
