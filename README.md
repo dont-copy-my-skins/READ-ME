@@ -28,9 +28,11 @@ Default or grass skin
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Host Info**
-Name ; Clay
-
 Pronouns ; He/they/it
+
+Age ; 21
+
+Role ; Host
 
 Sexuality ; Bisexual | Demian | Questioning Asexual
 
@@ -41,7 +43,6 @@ Positive Triggers ; dream, george, sapnap, mcyt, his partner,
 More ;
 
 Taken, Regiment Owner, Likes Glass Animals, Twitch Streamer
-
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Co- Host Info**
@@ -59,5 +60,22 @@ Positive Triggers ; Dream, Sapnap, MCYTs
 More ; 
 Wishes to not be asked out, Minor TD 
 
+
+** Second Co-Host Info**
+Name ; XD
+
+Nickname ; Xem
+
+Pronouns ; He/it/Xe
+
+Role ; Co-Host
+
+Sexuality ; ??????????
+
+Negative Triggers ; mentions of losing anybody
+
+Positive Triggers ; His Playlist, His Partner
+
+More ; Taken
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━☆☆━━━━━━━━━━━━━━━━━━━━━━━━━━
