@@ -29,6 +29,9 @@ Default or grass skin
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Host Info**
+
+Name; Clay
+
 Pronouns ; He/they/it
 
 Age ; 21
