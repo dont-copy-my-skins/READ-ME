@@ -9,7 +9,8 @@ Body is a minor
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Do not interact**
-Support CMC, K#cey, charlie d'amelio, dixie d'amelio, trump, or creepshow art
+
+Support CMC, K#cey, charlie d'amelio, dixie d'amelio, trump, creepshow art, slimehour on twitter, Fundy
 
 Fakeclaim Systems
 
