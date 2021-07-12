@@ -26,6 +26,8 @@ Under the age of 13 or over the age of 23
 
 Default or grass skin
 
+Related to @FUNK1NGEND3R on Twitter in any way (mutuals with them, friends with them, talk to them, etc) /srs
+
 ︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰︰
 
 **Host Info**
@@ -34,7 +36,7 @@ Name; Clay
 
 Pronouns ; He/they/it
 
-Age ; 21
+Age ; Age slider (13-21)
 
 Role ; Host
 
