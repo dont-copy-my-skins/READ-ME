@@ -6,7 +6,7 @@ https://the-republic-of-aurora.carrd.co/
  Please TW for all of us; Fakeclaiming 
 
 
-**〔≽〕DO NOT INTERACT **
+**DO NOT INTERACT**
 
 Support CMC, Kaceytron, charlie d'amelio, dixie d'amelio, trump, creepshow art, slimehour on twitter,
 
