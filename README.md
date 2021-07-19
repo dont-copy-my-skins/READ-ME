@@ -2,9 +2,7 @@
 https://the-republic-of-aurora.carrd.co/
 
 
-
- Please TW for all of us; Fakeclaiming 
-
+>
 
 
 
