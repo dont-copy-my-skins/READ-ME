@@ -2,6 +2,7 @@
 https://the-republic-of-aurora.carrd.co/
 
 
+
 // Please TW for all of us; Fakeclaiming \\
 
 
@@ -13,7 +14,7 @@ Fakeclaim Systems
 
 harrass those with tts or tds.
 
-You're in/affiliated with the DSMP Regiment ( They don't believe in TT/TD)
+You're in/affiliated with the DSMP Regiment 
 
 you dont respect ccs or people's boundaries
 
