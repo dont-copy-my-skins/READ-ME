@@ -25,3 +25,5 @@ Under the age of 13 or over the age of 23
 Default or grass skin
 
 Related to @FUNK1NGEND3R on Twitter in any way (mutuals with them, friends with them, talk to them, etc) /srs (at that point just dont interact with me please.)
+
+Ship the following ; Unstable and Unpredictable, Great and Horrid, People who are uncomfortable with it, minor x adult, bakudeku
