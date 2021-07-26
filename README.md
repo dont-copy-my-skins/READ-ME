@@ -1,12 +1,14 @@
 〔≽〕 SYSTEM CARRD 
 https://the-republic-of-aurora.carrd.co/
 
-
-=
-=
-
 -Hi we're the days collective and we all collectively go by Clay and they/them.
--Here's information about our host 
+
+
+=
+=
+
+
+-Information about our host 
 
 
 -Hi I'm Clay and I'm the host of this system and go by he/they/ender/it pronouns
