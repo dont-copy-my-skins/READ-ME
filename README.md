@@ -2,28 +2,43 @@
 https://the-republic-of-aurora.carrd.co/
 
 
->
+=
+=
+
+-Hi we're the days collective and we all collectively go by Clay and they/them.
+-Here's information about our host 
+
+
+-Hi I'm Clay and I'm the host of this system and go by he/they/ender/it pronouns
+
+-I'm a minor
+
+-MLM // Gay 
+
+-Taken
+
+- Fun fact; I adopted the pony town wiki! You can check it out [here ](https://ponytown.fandom.com/wiki/PonyTown_Wiki)
 
 
 
-**DO NOT INTERACT**
+**INT
 
-Support CMC, Kaceytron, charlie d'amelio, dixie d'amelio, trump, creepshow art, slimehour on twitter,
+-Into roblox myths (please friends)
 
-Fakeclaim Systems
 
-harrass those with tts or tds.
 
-You're in/affiliated with the DSMP Regiment 
+**DNI
 
-you dont respect ccs or people's boundaries
+-Roleplayer (derogatory) (friends are okay)
 
-Basic dni criteria (against xenogenders, racist. homophobic, etc)
+-Void, blob, grass or default skin
 
-Under the age of 13 or over the age of 23
+-fakeclaim systems
 
-Default, void, or grass skin
+-reality check psychotics
 
-Related to @FUNK1NGEND3R on Twitter in any way (mutuals with them, friends with them, talk to them, etc) /srs (at that point just dont interact with me please.)
+-endogenic system
 
-Ship the following ; Unstable and Unpredictable, Great and Horrid, People who are uncomfortable with it, minor x adult, bakudeku
+- think lesbian is an umbrella term (hide me also it isn't.)
+
+
