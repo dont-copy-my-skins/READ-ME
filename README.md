@@ -43,4 +43,6 @@ https://the-republic-of-aurora.carrd.co/
 
 - think lesbian is an umbrella term (hide me also it isn't.)
 
+- You're one of the "why are you crying" or "are you ok" people (yes im ok)
+
 
