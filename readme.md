@@ -8,7 +8,7 @@
 
 ✿ Collective Pronouns • they/them
 
-✿ Collective • Name Rez
+✿ Collective Name • Rez
 
 ✿ Body Age • 13-16
 
