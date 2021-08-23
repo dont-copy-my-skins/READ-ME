@@ -1,7 +1,5 @@
 ![UWS](https://user-images.githubusercontent.com/84343121/130400972-882fbb75-9fef-40b1-b4ba-2c0ef67a109d.jpg)
 
-
-
 #### **UNBEKKANT WELT SYSTEM**
 
 # ABOUT US !
@@ -50,8 +48,6 @@
 ## USELESS INFORMATION
 
 ✿ We all own the Ponytown Wiki, check it out! https://ponytown.fandom.com/
-
-✿ ━━━━━━━━━ »•» 🟢 «•« ━━━━━━━━━✿
 
 ![Untitled (20)](https://user-images.githubusercontent.com/84343121/130401336-0308714b-ec62-49d5-8d0c-7db99ee509f2.jpg)
 
