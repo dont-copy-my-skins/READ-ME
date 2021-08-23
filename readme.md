@@ -5,7 +5,7 @@
 #### **UNBEKKANT WELT SYSTEM**
 
 
-# ABOUT US
+![92850a951cf3f98646b5dee985209f94](https://user-images.githubusercontent.com/84343121/130401990-021b93cf-6233-433e-aae8-b8f45104579a.png) # ABOUT US !
 
 ✿ Collective Pronouns • they/them
 
