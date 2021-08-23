@@ -1,5 +1,6 @@
+![UWS](https://user-images.githubusercontent.com/84343121/130400972-882fbb75-9fef-40b1-b4ba-2c0ef67a109d.jpg)
 
-![c085ceb7e7f05d6909cc82752ad3f173](https://user-images.githubusercontent.com/84343121/130400857-4e9ed5d8-1979-4b36-91d4-ea77fa66d1ca.png)
+
 
 #### **UNBEKKANT WELT SYSTEM**
 
@@ -52,3 +53,6 @@
 ✿ We all own the Ponytown Wiki, check it out! https://ponytown.fandom.com/
 
 ✿ ━━━━━━━━━ »•» 🟢 «•« ━━━━━━━━━✿
+
+![Untitled (20)](https://user-images.githubusercontent.com/84343121/130401336-0308714b-ec62-49d5-8d0c-7db99ee509f2.jpg)
+
