@@ -8,8 +8,6 @@
 
 ✿ Collective Name • Rez
 
-✿ Body Age • 13-16
-
 ✿ Extra information  •  Psychotic OSDD System
 
 
