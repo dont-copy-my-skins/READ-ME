@@ -29,6 +29,8 @@
 
 ✿ Support Emotionless_Day or Unpredictable_Day
 
+✿ Hazbin, DDLC, default, grass or Maid skin.
+
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 
