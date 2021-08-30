@@ -8,7 +8,7 @@
 
 ✿ Collective Name • Rez
 
-✿ Extra information  •  Psychotic OSDD System
+✿ Extra information  •  Psychotic, fictive heavy OSDD System
 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
@@ -29,7 +29,7 @@
 
 ✿ Support Emotionless_Day or Unpredictable_Day
 
-✿ Hazbin, DDLC, default, grass, maid or void skin.
+✿ Hazbin, DDLC, default, grass, maid, void, 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
