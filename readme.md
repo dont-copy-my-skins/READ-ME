@@ -25,11 +25,11 @@
 
 ✿ Support or are an Endogenic System (A system that formed without trauma)
 
-✿ Disrespect those with TTs or TDs
-
 ✿ Support Emotionless_Day or Unpredictable_Day
 
 ✿ Hazbin, DDLC, default, grass, maid, void, 
+
+✿ 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
