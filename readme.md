@@ -27,7 +27,7 @@
 
 ✿ Support Emotionless_Day or Unpredictable_Day
 
-✿ Hazbin, DDLC, default, grass, maid, void, 
+✿ Hazbin, DDLC, default, grass, maid, void, Danganronpa skin
 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
@@ -45,7 +45,7 @@
 
 ✿ We take a bit to comprehend stuff, be patient! We may ask you to elaborate. 
 
-
+✿ We don't watch the Dsmp we may hang around the area but it's because we feel comfortable there.
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
