@@ -23,13 +23,12 @@
 
 ✿ Roleplayer (You make us uncomfortable PLEASE do not speak to us)
 
-✿ Support or are an Endogenic System (A system that formed without trauma)
+✿ Support or are an Endogenic System (Systems w/o trauma)
 
 ✿ Support Emotionless_Day or Unpredictable_Day
 
 ✿ Hazbin, DDLC, default, grass, maid, void, 
 
-✿ 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
@@ -42,7 +41,10 @@
 
 ✿ We are an OSDD system of 40+
 
-✿ **PLEASE** use tone indicators.
+✿ **PLEASE** use tone indicators around us!
+
+✿ We take a bit to comprehend stuff, be patient! We may ask you to elaborate. 
+
 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
