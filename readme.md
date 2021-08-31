@@ -42,6 +42,8 @@
 
 ✿ We are an OSDD system of 40+
 
+✿ **PLEASE** use tone indicators.
+
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
