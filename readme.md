@@ -38,9 +38,9 @@
 
 ✿ Some of us are non-verbal, do not expect us to respond
 
-✿ A majority of us have a Touch Discomfort (if we move away do not chase us)
+✿ A majority of us aren't comfortable with people being too close / touching them (if we move away do not chase us)
 
-✿ We are an OSDD system of 30+
+✿ We are an OSDD system of 40+
 
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
