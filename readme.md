@@ -17,7 +17,7 @@
 
 ✿ Basic do not interact criteria (racist, transphobic, homophobic, ableist, under the age of 13 + more)
 
-✿ Associate with the Twitter user @FUNK1NGEND3R or @Carnival_Kidd (for our personal comfort)
+✿ Associate with the Twitter user @FUNK1NGEND3R or @Carnival_Kidd (GO AWAY.)
 
 ✿ Fakeclaim systems
 
