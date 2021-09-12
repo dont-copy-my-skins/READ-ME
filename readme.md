@@ -54,5 +54,6 @@
 
 ✿ We all own the Ponytown Wiki, check it out! https://ponytown.fandom.com/
 
+✿ Interact if you're into the Days Union ARG.
 ![Untitled (20)](https://user-images.githubusercontent.com/84343121/130401336-0308714b-ec62-49d5-8d0c-7db99ee509f2.jpg)
 
