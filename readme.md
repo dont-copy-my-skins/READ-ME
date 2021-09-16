@@ -6,7 +6,7 @@
 
 ✿ Collective Pronouns • they/them
 
-✿ Collective Name • Rez
+✿ Collective Name • Regierungsters
 
 ✿ Extra information  •  Psychotic, fictive heavy OSDD System
 
@@ -29,7 +29,9 @@
 
 ✿ Hazbin, DDLC, default, grass, maid, void, Danganronpa skin
 
-✿ DNI Is in our name
+✿ MCYTTWT (Green name is okay)
+
+✿ Ship, simp for, or kin any of the days or night operatives (D/As are okay)
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
