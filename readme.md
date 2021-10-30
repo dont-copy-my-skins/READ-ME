@@ -1,6 +1,6 @@
 Dni basically:
 
--If you're pro-ship
+-If you're proship
 -if you're ableist, racist, transphobic, homophobic, against neopronouns etc
 - You go by the names clay, mocha, arcade, or wyvern
 - refuse to respect triggers, boundaries, pronouns, or tone indicators
