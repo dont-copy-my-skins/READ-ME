@@ -1,4 +1,4 @@
-Dni basically:
+**Dni basically:**
 
 - you're proship
 - you're ableist, racist, transphobic, homophobic, against neopronouns etc
