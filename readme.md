@@ -1,7 +1,7 @@
 **Dni basically:**
 
 - you're proship
-- you're ableist, racist, transphobic, homophobic, against neopronouns etc
+- you're ableist, racist, transphobic, homophobic, against neopronouns, zoophile, pedophile/map,
 - You go by the names clay, mocha, arcade, or wyvern
 - refuse to respect triggers, boundaries, pronouns, or tone indicators
 - -You are or support @FUNK1NGEND3R on Twitter
@@ -11,3 +11,6 @@
 - You support EmotionlessDay, Unpredictable_Day, Kelogish, Fave, MisterObvious
 - You fake any type of disorder
 - You're anti-recovery 
+- under the age of 12
+- you ship days union characters
+- double of me
