@@ -1,4 +1,5 @@
 **Dni basically:**
+(Do not interact)
 
 - you're proship
 - you're ableist, racist, transphobic, homophobic, against neopronouns, zoophile, pedophile/map,
