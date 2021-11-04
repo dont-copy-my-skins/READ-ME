@@ -26,10 +26,12 @@ Taken 💛
 
 
 **Int basically:**
+
 -DAYS UNION ! ! !
 - REGIERUNG ! ! (PLEASE APPROACH ME)
 
 **Before int. basically**
+
 -I exhibit a lot of signs and symptoms of BPD or Borderline Personality disorder
 - My comprehension and memory is out the door, please try to remain patient with me.
 - I have Discord, I just don't feel comfy giving it out to people I  don't know
