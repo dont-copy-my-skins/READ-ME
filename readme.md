@@ -1,10 +1,11 @@
 **Abt me:**
-Names: Rez, Cherry, Aufseher/Aufseherin
-Pronouns: Ask please, literally just ask. If you don't know them use they/them
-Other info: 
-DNI with me if I have DNI in my name /srs
-Please use tone indicators
-Taken 💛 
+
+- Names: Rez, Cherry, Aufseher/Aufseherin
+- Pronouns: Ask please, literally just ask. If you don't know them use they/them
+- Other info: 
+- DNI with me if I have DNI in my name /srs
+- Please use tone indicators
+- Taken 💛 
 
 **Dni basically:**
 (Do not interact)
