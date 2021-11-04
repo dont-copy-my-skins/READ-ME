@@ -1,3 +1,11 @@
+**Abt me:**
+Names: Rez, Cherry, Aufseher/Aufseherin
+Pronouns: Ask please, literally just ask. If you don't know them use they/them
+Other info: 
+DNI with me if I have DNI in my name /srs
+Please use tone indicators
+Taken 💛 
+
 **Dni basically:**
 (Do not interact)
 
@@ -19,4 +27,11 @@
 
 **Int basically:**
 -DAYS UNION ! ! !
-- REGIERUNG ! ! (PLEASE APPROACH ME >_<)
+- REGIERUNG ! ! (PLEASE APPROACH ME)
+
+**Before int. basically**
+-I exhibit a lot of signs and symptoms of BPD or Borderline Personality disorder
+- My comprehension and memory is out the door, please try to remain patient with me.
+- I have Discord, I just don't feel comfy giving it out to people I  don't know
+- NEVER refer to me as she/her unless explicitly stated, always use they/them on me no matter the skin
+
