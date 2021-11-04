@@ -10,8 +10,7 @@
 **Dni basically:**
 (Do not interact)
 
-- you're proship
-- you're ableist, racist, transphobic, homophobic, against neopronouns, zoophile, pedophile/map,
+- Basic dni criteria (racist, lgbtqphobic, map, zoo, etc)
 - You go by the names clay, mocha, arcade, or wyvern
 - refuse to respect triggers, boundaries, pronouns, or tone indicators
 - You are or support @FUNK1NGEND3R on Twitter
@@ -24,6 +23,7 @@
 - under the age of 12 or over the age of 25
 - you ship days union characters
 - double of me (I am literally Radiant_Day, Regierung_Aufseher and Meister_Architekt IRL.)
+- Those "why are you crying" type of people
 
 
 **Int basically:**
