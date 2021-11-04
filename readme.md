@@ -13,7 +13,7 @@ Taken 💛
 - you're ableist, racist, transphobic, homophobic, against neopronouns, zoophile, pedophile/map,
 - You go by the names clay, mocha, arcade, or wyvern
 - refuse to respect triggers, boundaries, pronouns, or tone indicators
-- -You are or support @FUNK1NGEND3R on Twitter
+- You are or support @FUNK1NGEND3R on Twitter
 - you ship alonetraveler x selozar, unpredictableday x unstableday, radiant_day x unstableday
 - You're dreamsexual or systemsexual
 - You are Shipful/Xenine/Joyous /supports or has ANY ties to them
@@ -27,8 +27,9 @@ Taken 💛
 
 **Int basically:**
 
--DAYS UNION ! ! !
+- DAYS UNION ! ! !
 - REGIERUNG ! ! (PLEASE APPROACH ME)
+- Roblox myths
 
 **Before int. basically**
 
@@ -36,4 +37,6 @@ Taken 💛
 - My comprehension and memory is out the door, please try to remain patient with me.
 - I have Discord, I just don't feel comfy giving it out to people I  don't know
 - NEVER refer to me as she/her unless explicitly stated, always use they/them on me no matter the skin
+- I can be a little rude at points
+- I have social anxiety, it's why I mostly sit alone unless with my partner
 
