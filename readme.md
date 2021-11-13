@@ -60,6 +60,16 @@
 						
 						i don't talk a lot
 						
+						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
+						
+						questions ? too afraid to ask ?
+						
+						check the link below out
+						
+						don't make me regret this !
+						
+						https://ask.fm/dontcopymyskins
+						
 						╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
 						
