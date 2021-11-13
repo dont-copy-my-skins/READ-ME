@@ -37,6 +37,7 @@
 						if i have dni in my name
 						
 						you roleplay
+						
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
 						please int with me
@@ -45,13 +46,15 @@
 						
 						_REGIERUNG skins
 					 
-					 roblox myths
+						roblox myths
 					 
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
 						useless information about me
 						
 						i'm ethereal nocturne irl /srs
+						
+						i'm organizer nocturne irl /srs
 						
 						i use tone indicators
 						
@@ -61,5 +64,11 @@
 
 						
 						
-							
+
+
+https://user-images.githubusercontent.com/84343121/141613872-9c4679d2-301a-4dab-a8c9-1fa10fbf8025.mov
+
+
+
+				
 																																
