@@ -16,7 +16,7 @@
 						
 						dni if you meet the following criteria
 							
-						[basic criteria](https://dni-criteria-list.carrd.co/)
+						basic criteria | https://dni-criteria-list.carrd.co/
 							
 						endogenic "systems"
 							
