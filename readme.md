@@ -68,7 +68,7 @@
 						
 						don't make me regret this !
 						
-						https://ask.fm/dontcopymyskins
+						https://curiouscat.qa/Dontcopymyskins
 						
 						╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
