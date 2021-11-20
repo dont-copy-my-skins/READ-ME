@@ -8,7 +8,7 @@
 						
 						hi i'm rez, cherry or aufseher/aufseherin
 						
-						 pronouns - he they vim it bow mew
+						 pronouns - he they vi it
 							 
 							nonbinary gay (NBLM)
 								
