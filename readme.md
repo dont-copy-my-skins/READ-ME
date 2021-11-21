@@ -38,6 +38,8 @@
 						
 						you roleplay
 						
+						you support kazdam, unpredictable_day, emotionless_day, uleanra, mugen, kelogish, or fave
+						
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
 						please int with me
