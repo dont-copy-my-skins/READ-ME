@@ -8,7 +8,7 @@
 						
 						hi i'm rez, cherry or aufseher/aufseherin
 						
-						 pronouns - he they vi it
+						 pronouns - they it
 							 
 							nonbinary gay (NBLM)
 								
@@ -53,11 +53,7 @@
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
 						useless information about me
-						
-						i'm ethereal nocturne irl /srs
-						
-						i'm organizer nocturne irl /srs
-						
+
 						i use tone indicators
 						
 						i don't talk a lot
