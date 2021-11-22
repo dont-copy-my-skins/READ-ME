@@ -6,7 +6,7 @@
 
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
-						hi i'm rez, cherry or aufseher/aufseherin
+						hi i'm an entity.
 						
 						 pronouns - they it
 							 
