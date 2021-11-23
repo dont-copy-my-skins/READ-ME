@@ -58,6 +58,9 @@
 						
 						i don't talk a lot
 						
+						I get genuinely annoyed by 
+						
+						people touching me unless they're close
 						》* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚《
 						
 						questions ? too afraid to ask ?
